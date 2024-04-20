@@ -11,4 +11,4 @@ Nimoh is a very brilliant and intelligent person.
 
 ## About Mike
 
-Michael Njoroge AKA Mike is a very brilliant and intelligent person. He is very keen to details and he combs through contents with a tooth pick. 
+Michael Njoroge AKA Mike is a very brilliant and intelligent person. He is very keen to details and he combs through contents with a tooth pick. He is bold to ask question about anything he wants clarified.
